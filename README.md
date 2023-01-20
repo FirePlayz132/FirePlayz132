@@ -4,4 +4,4 @@ im really bad at this and most of the time i break it
 
 but im bored and i try
 
-<img src="https://i1.sndcdn.com/artworks-J7IJO7zzJ1ZozmHP-QfVSTw-t500x500.jpg" alt="Stream Friday night Funkin - Boyfriend Dies - Goodbye World by DiamondShard  | Listen online for free on SoundCloud"/>![image](https://user-images.githubusercontent.com/119700161/213749651-f1a345cf-8c89-4e37-b2be-f831f3f9a9d5.png)
+![artworks-J7IJO7zzJ1ZozmHP-QfVSTw-t500x500](https://user-images.githubusercontent.com/119700161/213749724-ad0ddd9f-f8eb-4bca-a0f4-ec874b74649a.jpg)
