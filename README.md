@@ -17,4 +17,4 @@ Week 5 (link will maybe go here if i make it)
 Fnaf 2 is yet to be seen :|
 
 
-https://media.tenor.com/oNo9ckNGAHIAAAAC/fnf-friday-night-funkin.gif
+![Uploading fnf-friday-night-funkin.gif…]()
