@@ -3,7 +3,18 @@ i mostly just play around with other peoples ports and some times port songs
 im really bad at this and most of the time i break it
 
 but im bored and i try
+-----------------------------------------------------------------------------------
 
-News! im working on little man V2
+Working on fnf fnaf 1! Each week well be split into 4 differnt repositorys so it wont break so easy.
 
-![artworks-J7IJO7zzJ1ZozmHP-QfVSTw-t500x500](https://user-images.githubusercontent.com/119700161/213749724-ad0ddd9f-f8eb-4bca-a0f4-ec874b74649a.jpg)
+FNaf 1
+Week 1 (link goes here)
+Week 2 (link goes here)
+Week 3 (link goes here)
+Week 4 (link goes here)
+Week 5 (link will maybe go here if i make it)
+
+Fnaf 2 is yet to be seen :|
+
+
+https://media.tenor.com/oNo9ckNGAHIAAAAC/fnf-friday-night-funkin.gif
