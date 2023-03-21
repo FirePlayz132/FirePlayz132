@@ -8,7 +8,7 @@ Working on fnf fnaf 1! Each week well be split into 4 differnt repositorys so it
 
 FNaf 1
 
-•Week 1 (https://fireplayz132.github.io/FnafWeek1/)
+•Week 1 (https://fireplayz132.github.io/Fnaf_Week1/)
 
 •Week 2 (link goes here)
 
