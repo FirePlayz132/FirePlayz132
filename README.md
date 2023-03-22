@@ -4,7 +4,7 @@ im really bad at this and most of the time i break it
 
 but im bored and i try
 _________________________________________________________________________________________________________________
-Working on fnf fnaf 1! Each week well be split into 4 differnt repositorys so it wont break so easy.
+im still working on fnf fnaf 1!
 
 FNaf 1
 
@@ -17,8 +17,15 @@ FNaf 1
 •Week 4 (link goes here)
 
 •Week 5 (link will maybe go here if i make it)
+
+Each week well be split into 4 differnt repositorys so it wont break so easy.
 _________________________________________________________________________________________________________________
 Fnaf 2 is yet to be seen :|
-
-
+_________________________________________________________________________________________________________________
+Fnf vs imposter bonus songs Crewicide, Who & Ow
+_________________________________________________________________________________________________________________
+Also im working fnf imposter V4 girlfriend mode cus i can.
+^
+that one will take a while so dont count on that anytime soon lol :]
+_________________________________________________________________________________________________________________
 https://media.tenor.com/oNo9ckNGAHIAAAAC/fnf-friday-night-funkin.gif
