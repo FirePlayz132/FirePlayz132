@@ -25,7 +25,7 @@ ________________________________________________________________________________
 Fnf vs imposter bonus songs Crewicide, Who & Ow
 _________________________________________________________________________________________________________________
 Also im working fnf imposter V4 girlfriend mode cus i can.
-^
+
 that one will take a while so dont count on that anytime soon lol :]
 _________________________________________________________________________________________________________________
 https://media.tenor.com/oNo9ckNGAHIAAAAC/fnf-friday-night-funkin.gif
