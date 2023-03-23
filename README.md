@@ -22,7 +22,9 @@ Each week well be split into 4 differnt repositorys so it wont break so easy.
 _________________________________________________________________________________________________________________
 Fnaf 2 is yet to be seen :|
 _________________________________________________________________________________________________________________
-Fnf vs imposter bonus songs Crewicide, Who & Ow
+Fnf vs imposter bonus songs Crewicide, Who & Ow (note that ow has not been added yet)
+
+https://github.com/FirePlayz132/FnfVsImpostor_CrewicideANDwho
 _________________________________________________________________________________________________________________
 Also im working fnf imposter V4 girlfriend mode cus i can.
 
