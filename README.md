@@ -27,6 +27,7 @@ ________________________________________________________________________________
 Also im working fnf imposter V4 girlfriend mode cus i can.
 
 that one will take a while so dont count on that anytime soon lol :P
+here is a teaser https://www.youtube.com/watch?v=3Z3YYTlcpkM
 _________________________________________________________________________________________________________________
 Have a nice day! :]
 
