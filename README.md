@@ -4,9 +4,7 @@ im really bad at this and most of the time i break it
 
 but im bored and i try
 _________________________________________________________________________________________________________________
-Fnf Rememberance (Velma Meets the Original Velma) - 
-
-The velma show sucks but this song is good tho
+Fnf Rememberance (The velma show sucks but this song is good tho) - 
 _________________________________________________________________________________________________________________
 Fnf TrickyV2 (may take awhile to load) - https://github.com/FirePlayz132/TrickyV2
 _________________________________________________________________________________________________________________
