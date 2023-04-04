@@ -4,7 +4,7 @@ im really bad at this and most of the time i break it
 Accelerant but Pico sing it
 but im bored and i try
 _________________________________________________________________________________________________________________
-Working on fnf Accelerant but Pico sing it
+worken on BobTakeover week and the ex week
 _________________________________________________________________________________________________________________
 Fnf Rememberance (The velma show sucks but this song is good tho) - broke as of right now
 _________________________________________________________________________________________________________________
