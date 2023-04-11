@@ -1,18 +1,12 @@
 i mostly just play around with other peoples ports and some times port songs
 
 im really bad at this and most of the time i break it
-Accelerant but Pico sing it
+
 but im bored and i try
 _________________________________________________________________________________________________________________
-worken on BobTakeover week and the ex week
+BobTakeover week and the ex week done https://fireplayz132.github.io/BobTakeoverDONE/
 _________________________________________________________________________________________________________________
-Fnf Rememberance (The velma show sucks but this song is good tho) - broke as of right now
-_________________________________________________________________________________________________________________
-Fnf TrickyV2 (may take awhile to load) - https://github.com/FirePlayz132/TrickyV2
-_________________________________________________________________________________________________________________
-Fnf Slenderman - https://fireplayz132.github.io/Fnf_Slenderman/
-_________________________________________________________________________________________________________________
-im still working on fnf fnaf 1!
+im still working on fnf fnaf 1 I know its been forever
 
 FNaf 1
 
@@ -28,15 +22,13 @@ FNaf 1
 
 Each week well be split into 4 differnt repositorys so it wont break so easy.
 _________________________________________________________________________________________________________________
-Fnaf 2 is yet to be seen :|
-_________________________________________________________________________________________________________________
-Fnf vs imposter bonus songs Crewicide, Who & Ow (note that ow has not been added yet)
-
-https://github.com/FirePlayz132/FnfVsImpostor_CrewicideANDwho
+Fnaf 2 most likely not :|
 _________________________________________________________________________________________________________________
 Also im working fnf imposter V4 girlfriend mode cus i can.
 
 that one will take a while so dont count on that anytime soon lol :P
+
+im about a 1/5 done with it
 
 here is a teaser https://www.youtube.com/watch?v=3Z3YYTlcpkM
 _________________________________________________________________________________________________________________
