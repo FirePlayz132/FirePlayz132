@@ -4,6 +4,8 @@ im really bad at this and most of the time i break it
 
 but im bored and i try
 
+Also i want more stars
+
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=FirePlayz132&show_icons=true&theme=radical)
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=FirePlayz132&layout=compact&show_icons=true&theme=radical)
 _________________________________________________________________________________________________________________
