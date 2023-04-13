@@ -3,6 +3,9 @@ i mostly just play around with other peoples ports and some times port songs
 im really bad at this and most of the time i break it
 
 but im bored and i try
+
+![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=FirePlayz132&show_icons=true&theme=radical)
+![](https://github-readme-stats.vercel.app/api/top-langs/?username=FirePlayz132&layout=compact&show_icons=true&theme=radical)
 _________________________________________________________________________________________________________________
 BobTakeover week and the ex week done https://fireplayz132.github.io/BobTakeoverDONE/
 _________________________________________________________________________________________________________________
