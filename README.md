@@ -9,7 +9,15 @@ Also i want more stars
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=FirePlayz132&show_icons=true&theme=radical)
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=FirePlayz132&layout=compact&show_icons=true&theme=radical)
 _________________________________________________________________________________________________________________
-Working on gf mode bf Regular Friday Night (aka fnf vs regular show)
+Requested by yourlocalporter (aka fnfporterhi) QT with extra keys.
+
+i got the source code i just got to compile it it
+
+if nothing goes wrong and i get no errors it should be up later today or sometime tomorrow
+
+three or four days tops.
+
+https://github.com/FirePlayz132/QT-with-extra-keys
 
 _________________________________________________________________________________________________________________
 Im Still working on fnf imposter V4 girlfriend mode cus i can.
