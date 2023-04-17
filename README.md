@@ -8,6 +8,7 @@ Also i want more stars
 
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=FirePlayz132&show_icons=true&theme=radical)
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=FirePlayz132&layout=compact&show_icons=true&theme=radical)
+<a href="https://discord.gg/SZtXnZxySk" target="_blank"><img src="https://github.com/Mr-funkinguy/funkinguy/blob/output/snake.svg" alt="snake"></a>
 _________________________________________________________________________________________________________________
 Requested by yourlocalporter (aka fnfporterhi) QT with extra keys.
 
