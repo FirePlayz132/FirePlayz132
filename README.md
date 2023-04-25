@@ -1,5 +1,7 @@
 i mostly just play around with other peoples ports and some times port songs
 
+![gifmaker_me](https://user-images.githubusercontent.com/119700161/234372126-10c027ee-fe48-447c-b71a-4dabc47ff2dc.gif)
+
 im really bad at this and most of the time i break it
 
 but im bored and i try
