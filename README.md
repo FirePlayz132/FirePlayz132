@@ -11,6 +11,10 @@ Also i want more stars
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=FirePlayz132&show_icons=true&theme=radical)
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=FirePlayz132&layout=compact&show_icons=true&theme=radical)
 _________________________________________________________________________________________________________________
+Requested by yourlocalporter (aka fnfporterhi) QT with extra keys IS DONE LETS GOOOOO
+
+https://github.com/FirePlayz132/QT-with-extra-keys
+_________________________________________________________________________________________________________________
 Yes im still working on FnfVsFnaf 1 I know its been forever im just lazy and i get side traked alot
 
 FNaf 1
@@ -26,10 +30,6 @@ FNaf 1
 •Week 5 (link will maybe go here if i make it)
 
 Each week well be split into 4 differnt repositorys so it wont break so easy.
-_________________________________________________________________________________________________________________
-Requested by yourlocalporter (aka fnfporterhi) QT with extra keys.
-
-https://github.com/FirePlayz132/QT-with-extra-keys
 _________________________________________________________________________________________________________________
 Im Still working on fnf imposter V4 girlfriend mode cus i can.
 
